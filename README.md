@@ -1,1 +1,1 @@
- <img width="500" src="https://imgur.com/a/7ZRQENO"> <samp> <br>
+ <img width="500" src="https://i.imgur.com/DDe4mwg.png"> <samp> <br>
